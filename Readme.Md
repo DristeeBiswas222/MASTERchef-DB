@@ -1,0 +1,1 @@
+If you like black forest flavour, you’re going to LOVE this ice cream! It has a vanilla ice cream base swirled with a fresh cherry compote, rich chocolate chunks and delicious brownie bites.
